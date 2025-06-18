@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **karan9955078@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1cIyCQ8JAg7Z_EvycL7snexXILjXcrUt4/view?usp=drive_link]([https://drive.google.com/file/d/1cIyCQ8JAg7Z_EvycL7snexXILjXcrUt4/view?usp=drive_link])
+- 📄 Know about my experiences [https://drive.google.com/file/d/1nb5CUeJ8CWxQJurs2CRHiZpfGFoV5H4I/view?usp=drive_link](https://drive.google.com/file/d/1nb5CUeJ8CWxQJurs2CRHiZpfGFoV5H4I/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
